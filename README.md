@@ -29,3 +29,23 @@ Note:
         > (a) in the case of a person born on or before the 31st July, 1989, if at the date of such person’s birth, his father was a citizen of Malta otherwise than by virtue of this subarticle or article 3(2):
         >
         > Provided that a person born on or before the 31st July, 1989, if at the date of such person’s birth his mother was a citizen of Malta otherwise than by virtue of this subarticle or article 3(2) shall be entitled, upon making an application as may be prescribed and upon taking the oath of allegiance, to be registered as acitizen of Malta; and
+        
+
+Then there's this on the consulate:
+  > A descendant in the direct line of an ascendant born in Malta of a parent likewise born in Malta, would need to submit:
+  >
+  > A full birth certificate of the applicant (showing the parents' names);
+  > 
+  > The applicant's marriage certificate (if applicable);
+  > 
+  > One recent passport-sized photo of the applicant;
+  > 
+  > The applicant's passport;
+  > 
+  > The birth and marriage certificates of the applicant’s ascendants to show the direct link to two consecutive generations of ascendants born in Malta;
+  > 
+  > In case of the third and subsequent generations:
+  > The death certificate of the applicant's ascendant/s born in Malta (in case of death); and
+  > Copy of the registration certificate of the applicant's ascendant/s born in Malta (as applicable)
+
+DO THIS?! https://www.ccmalta.com/publications/maltese-citizenship-by-descent
